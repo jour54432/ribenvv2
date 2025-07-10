@@ -15,4 +15,4 @@
 安全性方面，平台使用HTTPS加密技术，确保用户的浏览安全。平台不插入恶意广告和弹窗，确保用户在观看影片时不会受到任何干扰。  
 总之，国产午夜精品无码一区二区凭借高清播放、便捷观看、强大分类和隐私保护，成为了很多影迷的首选平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/jour54432/ribenvv2)</span>
